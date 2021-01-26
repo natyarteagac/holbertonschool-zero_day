@@ -1,5 +1,5 @@
 Hey everyone! 
 
-I'm to say to you: I'm trying not cry.
+I'm going to say to you something: I'm trying to not cry.
 
 Bye. 
